@@ -40,7 +40,7 @@ I love tackling complex technical challenges, optimizing systems, and mentoring 
 ---
 
 ## 📫 Contact Me
-- **LinkedIn:** [Your LinkedIn URL]  
+- **LinkedIn:** https://www.linkedin.com/in/muhammad-ahmad-habib-828122263/ 
 - **Email:** muhammadahmadhabib42@gmail.com 
 
 ---
